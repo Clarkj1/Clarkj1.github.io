@@ -1,1 +1,0 @@
-# Clarkkjoseph1.github.io
